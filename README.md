@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EnzoR91
-- 👀 I’m interested in crypto
+- 👀 I’m interested in 
 - 🌱 I’m currently learning Data
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
