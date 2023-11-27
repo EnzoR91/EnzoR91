@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EnzoR91
 - 👀 I’m interested in sdsd
-- 🌱 I’m currently learninghggh
+- 🌱 I’m currently learninghgghdfdf
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
