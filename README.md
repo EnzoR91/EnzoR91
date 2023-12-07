@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EnzoR91
 - 👀 I’m interested in dfsdfssdsdjh
 - 🌱 I’m currently khkjksfsdf
-- 💞️ I’m looking to collaborate on ..
+- 💞️ I’m looking to collaborate on ..ghg
 - 📫 How to reach me ...fghf
 
 <!---
