@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EnzoR91
 - 👀 I’m interested in zsdasdsdsdasda
-- 🌱 I’m currently sdsdasdassdadasdasdasasas
+- 🌱 I’m currently sdsdasdassdadasdasdasasasasdasd
 - 💞️ I’m looking to collaborate on .
 - 📫 How to reach me ...fghf
 
