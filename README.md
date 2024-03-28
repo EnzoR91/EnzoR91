@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EnzoR91
-- 👀 I’m interested sfgdfgdfgdfg
+- 👀 I’m interested 
 - 🌱 I’m currentlysdasd
 - 💞️ I’m looking to collaborate on .
 - 📫 How to reach me ...fghf
