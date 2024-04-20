@@ -1,6 +1,6 @@
 g- 👋 Hi, I’m @EnzoR91
 - 👀 I’m interested 
-- 🌱 I’m currenthghg
+- 🌱 I’m currenthghghghg
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...fghf
 
