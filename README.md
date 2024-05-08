@@ -1,6 +1,6 @@
 g- 👋 Hi, I’m @EnzoR91
 - 👀 I’m interested
-- 🌱 I’m currens ghghgh
+- 🌱 I’m currens ghghghdfgdfg
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...fghfsd
 
