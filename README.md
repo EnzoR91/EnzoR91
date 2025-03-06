@@ -1,5 +1,5 @@
 g- 👋 Hi, I’m @EnzoR91
-- 👀 I’m interested
+- 👀 I’m interested for now
 - 🌱 I’m currens cngg
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...
